@@ -99,10 +99,18 @@ GitHub 的版本控制功能，恰好能夠保存這些過程。
 ———
 
 《枍奭》｜Yishi Universe - A Different Way to Fix Ur Life & make it better.
+
 《枍奭心裡學》｜Yishi Thought System -  Clean Ur Mind - GO & DO, NO words.
+
 《枍119闁》｜Yishi 119 Double Gate - Tools for Life U need.
+
 作者：張枍 Chang Yi，台灣；《枍奭》篡立人暨《枍奭心裡學》與《枍119闁》創作者
+
 全網同名：來者何枍
+
+本文撰文日期：2026年11月22日 7:41AM
+
 正名註記：2026年11月11日，原「枍奭界」正式正名為「枍奭」。
+
 #枍奭 #張枍 #來者何枍 #枍奭心裡學 #枍119闁 #台灣 # Chang Yi #YishiUniverse #YishiThoughtSystem #Yishi 119 Double Gate #Taiwan
 
